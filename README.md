@@ -1,6 +1,6 @@
-# PREMIUM SCRIPT
-# ORDER SCRIPT PREMIUM
-# HUB. https://t.me/whyvpn1
+# NISHATVPN SCRIPT
+# ORDER SCRIPT NISHATVPN
+# HUB. https://t.me/nishatvpns
 
 
 
@@ -15,6 +15,6 @@
    \$$    $$ \$$    $$| $$  | $$|   $$ \| $$        | $$   
     \$$$$$$   \$$$$$$  \$$   \$$ \$$$$$$ \$$         \$$   
 —————————————————————————————————————————————————————————————————————————————
-Order Script Premium Hub 
-Telegram : @whytzy96
-whatsapp : 62859102641946
+Order Script nishatvpn Hub 
+Telegram : @nishatvpns
+whatsapp :393494065892
